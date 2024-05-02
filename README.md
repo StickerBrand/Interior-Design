@@ -1,5 +1,5 @@
 # Interior-Design
-[StickerBrand] (http://www.stickerbrand.com).
+stickerbrand.com
 
 Welcome to StickerBrand, where artistic self-expression meets modern interior design. Our collection of stylish wall decals, murals, and stickers will transform any blank space into a personalized work of art. Based in sunny Orlando, Florida, StickerBrand is a home-grown brand that designs and produces all products in-house using premium materials and cutting-edge printing technology.
 
