@@ -1,7 +1,7 @@
 # Interior-Design
 
 
-Welcome to [StickerBrand](http://www.stickerbrand.com), where artistic self-expression meets modern interior design. Our collection of stylish [wall decals](https://stickerbrand.com/collections/vinyl-wall-decals), [murals](https://stickerbrand.com/collections/wall-murals), and stickers will transform any blank space into a personalized work of art. Based in sunny Orlando, Florida, StickerBrand is a home-grown brand that designs and produces all products in-house using premium materials and cutting-edge printing technology.
+Welcome to [StickerBrand](http://stickerbrand.com), where artistic self-expression meets modern interior design. Our collection of stylish [wall decals](https://stickerbrand.com/collections/vinyl-wall-decals), [murals](https://stickerbrand.com/collections/wall-murals), and stickers will transform any blank space into a personalized work of art. Based in sunny Orlando, Florida, StickerBrand is a home-grown brand that designs and produces all products in-house using premium materials and cutting-edge printing technology.
 
 Explore our constantly evolving catalog of trendsetting graphic art pieces, featuring vibrant colors, imaginative patterns, and eye-catching designs crafted by our talented artists. From whimsical decals for nurseries to contemporary abstract murals for living rooms, we have an exclusive range suitable for any interior style. StickerBrand decor seamlessly adds kaleidoscopic flair to apartments, dorms, offices and more.
 
